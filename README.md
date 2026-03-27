@@ -1,1 +1,1 @@
-https://github.com/wqzert/slozhno-sosredotochitsya-ad/
+https://github.com/wqzert/slozhno-sosredotochitsya-ad
